@@ -1,2 +1,2 @@
 # complete-trash
-this is rubbish
+love is rubbish
